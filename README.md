@@ -1,2 +1,0 @@
-# goodbyehacker
-just for fun
